@@ -4,7 +4,7 @@
   </a>
 
   <p align="center">
-    Anti Rejection for ur crush (ew yuck)
+    Anti Rejection ug di gihapon way barang
     <br />
     <a href="https://lugh-tuatha.github.io/yes-or-yes/">View Demo</a>
     ·
